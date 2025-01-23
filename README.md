@@ -9,3 +9,9 @@ Please find the related dataset here:
 
 
 https://1drv.ms/x/c/d8c6149ac55ad38d/EampkeVFGX5NnD1X6rRNGToB72XABShLjWrt2j-3zmLRJw?e=u5Pppr
+
+
+Please find the related **Medium** article here:
+
+
+https://medium.com/@connect2_raashid199/hiring-process-analytics-75f8699b8118
